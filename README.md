@@ -1,2 +1,0 @@
-# FAZALXCRACKWAR-
-A 👿 HACKER 
